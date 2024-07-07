@@ -19,5 +19,5 @@
 
 
 
-Feito com ♥ by Shao Tecnology Group Company Ltda. :wave: [Participe da nossa comunidade!](https://www.instagram.com/shaotecnologia/)
+Feito com ♥ by  :wave: [@leandroaa01](https://www.instagram.com/leandroaa01)
 
